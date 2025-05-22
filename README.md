@@ -1,1 +1,0 @@
-# MathEssentials
